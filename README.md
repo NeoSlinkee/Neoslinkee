@@ -52,4 +52,4 @@ I'm available for freelance and contract work — feel free to reach out.
 ## 📬 Contact
 **Email:** chrismaarsch@gmail.com  
 **LinkedIn:** https://www.linkedin.com/in/christopher-maarschalkerweerd-4638b769/  
-**Notion Portfolio:** *(Add your Notion URL here once published)*  
+**Notion Portfolio:** https://www.notion.so/Christopher-Maarschalkerweerd-2bac2d596da680d3bf46dd07b636b166?source=copy_link
